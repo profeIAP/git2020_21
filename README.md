@@ -2,4 +2,9 @@
 Repositorio para la tarea "Usando GIT"...
 Esto es lo nuevo
 
-Hola que tal soy AntonioS813
+Hola  AntonioS813
+Buenos días soy Manu
+Hola soy Fdnando10
+
+buenos dias con alegria soy alvaro
+
