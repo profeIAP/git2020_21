@@ -8,4 +8,4 @@ buenos dias con alegria soy alvaro
 Viernes 2 de Octubre, Pepe ha faltado
 Soy Cristina
 SOy Alerr
-Viva el fifita
+Viva el fifita (70 euros al año)
