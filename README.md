@@ -4,9 +4,10 @@ Esto es lo nuevo
 Hola que tal soy AntonioS813
 Buenos días soy Manu
 Hola soy Fdnando10...
-buenos dias con alegria soy alvaro
+buenos dias sin alegria soy alvaro
 Viernes 2 de Octubre, Pepe ha faltado
+Que pasa compas aquí Á.Bermu desde la tierra
 Soy Cristina
 SOy Alerr
 Viva el fifita (70 euros al año)
-Que pasa compas aquí Á.Bermu desde la tierra
+
