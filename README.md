@@ -9,6 +9,7 @@ Viernes 2 de Octubre, Pepe ha faltado
 Que pasa compas aquí Á.Bermu desde la tierra
 Soy Cristina
 SOy Alerr
-Viva el fifita (70 euros al año)
+mejor tarde que nunca
+no al fifita (70 euros al año)
 Prueba commit desde README.md
 haciendo estoooooo
