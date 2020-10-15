@@ -9,3 +9,4 @@ Viernes 2 de Octubre, Pepe ha faltado
 Soy Cristina
 SOy Alerr
 Viva el fifita (70 euros al año)
+Que pasa compas aquí Á.Bermu desde la tierra
