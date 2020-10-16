@@ -5,7 +5,7 @@ Hola que tal soy AntonioS813
 Buenos días soy Manu
 Hola soy Fdnando10
 buenos dias con alegria soy alvaro
-Viernes 2 de Octubre, Pepe ha faltado
+Viernes 2 de Octubre, Pepe ha muerto
 Soy Cristina
 SOy Alerr
-Viva el fifita
+Viva el fifita (70 euros al año)
