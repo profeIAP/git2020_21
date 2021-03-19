@@ -7,6 +7,7 @@ Hola soy Fdnando10
 buenos dias con alegria soy alvaro
 Viernes 2 de Octubre, Pepe ha muerto
 Soy Cristina
+Soy José Antonio
 SOy Alerr
 mejor tarde que nunca pppp
 no al fifita (70 euros al año) fifero de mierda
